@@ -1,1 +1,0 @@
-# SOFT_TASK_1
